@@ -4,7 +4,7 @@
 
 [INFORMATION]
 
-Je vous créer le serveur contre 25€ paysafecard ! 
+Je vous créer le serveur contre 25€ paysafecard - MasterCard - Pas encore paypal ! 
 
 Parchemins SP Poule Pirate Pyjama .
 
